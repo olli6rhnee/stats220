@@ -20,9 +20,9 @@ I think it might be easier if you could find them [here](https://olli6rhnee.gith
 
 
 ## About me...
--3rd year student📖
+- 3rd year student📖
 
--majoring Statistics📊
+- majoring Statistics📊
 
--loving fan art fiction/picture🥰
+- loving fan art fiction/picture🥰
 
